@@ -5,7 +5,7 @@
 - 📫 How to reach me :
 Email: khaliladmob@gmail.com
 
-Whatsapp: +923045281669 
+Whatsapp: https://wa.me/923045281669 
 
 Facebook: https://www.facebook.com/khalil.butt.902
 
