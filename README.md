@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on Android apps development projects.
 - 📫 How to reach me :
 Email: khaliladmob@gmail.com
-Whatsapp: +923045281669
-Facebook: https://www.facebook.com/khalil.butt.902
+Whatsapp: +923045281669 \n
+Facebook: https://www.facebook.com/khalil.butt.902 \n
 Youtube: https://www.youtube.com/AL-KhalilDevelopers/
 
 <!---
